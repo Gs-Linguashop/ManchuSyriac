@@ -137,19 +137,19 @@
 
 雍正庚戌孟春之朔日，作忠堂主人程明远题。
 
-## Cing Wen Ki Meng Bithe: Sioi i Gisun （转写）
+### Cing Wen Ki Meng Bithe: Sioi i Gisun （转写）
 
 Cing Wen Ki Meng Bithe serengge, mini gucu Šeo Ping siyan šeng ni fisembume arafi, booi tacikū de tacibuhangge. Ede sume sindaha Nikan gisun, udu umesi muwa cinggiya bicibe, teni tacire urse be neileme ulhiyen i ibeburede micihiyan ci šumin de dosinara, goro yabure de hanci ci deribure gūnin tebuhebi. Tere anggala tuktan yarhūdame tacibure de, enteke getuken iletu bithe waka oci, inu sara ulhire de mangga ombi, ere yargiyan i ajigan tacire ursei sucungga doobure ada, duka dosimbure doko jugūn kai. Bi kemuni siyan šeng ni erebe jafafi ajigan urse be tacibuha be tuwaci, majige sureken ulhicungga urse oci, tacime biyalame baiburakū, uthai hūlame arame mutembi sere anggala, jilgan mudan getuken bolgo, hergen i jijun tob tondo ojorakūngge akū, yala emgeri tacifi calabure jecuhunjere de isinarakū ombi, fulehe be tob, sekiyen be bolgo obure gūnin ambula bisire dade, gemu gung tusa be hūdun ojoro ferguwecuke babi. Bi aifini jise be gaifi folobufi, teniken tacire urse de durun tuwakū obuki seme baihade, siyan šeng ohakū henduhengge, ere bithe serengge mini booi juse be tacihiyame, faksikan i gamame arahangge, suhengge yooni buya calgari gisun muwa albatu bime fiyan akūngge, folobuci basucun akū semeo sehe bihe. Bi dahūn dahūn i hūsutuleme baire jakade, teni bahafi acabume folobuha, ede ajigan tacire urse de, ainci ambula niyececun tusa ojoro ba bidere.
 
 Hūwaliyasun Tob i jakūci aniya niyengniyeri sain inenggi, Dzo Jung Tang ni booi ejen Ceng Ming Yuwan araha.
 
-# ܫܝܥ ܘ̈ܐܢ ܟܝ ܡ̈ܐܥ ܒܝܬܗ: ܣܝܘܝ ܓܝܣܘܢ (ܦܘܚܠܢ ܗܪܓܢ)
+### ܫܝܥ ܘ̈ܐܢ ܟܝ ܡ̈ܐܥ ܒܝܬܗ: ܣܝܘܝ ܓܝܣܘܢ (ܦܘܚܠܢ ܗܪܓܢ)
 
 ܫܝܥ ܘ̈ܐܢ ܟܝ ܡܐܥ ܒܝܬܗ ܣܪܥܓ، ܡܝܢܝ ܓܘܫܘ ܫܹ̇ܐܘ ܦ̇ܝܥ ܣܝܑܢ ܫ̇ܥܢܝ ܦܝܣܡܒܘܡ ܐܪܦܝ، ܒܘܝ ܛܫܝܩܘܕ ܛܫܝܒܘܚܥܓ. ܐܕ ܣܘܡ ܣܝܢܕܚ ܢܝܩܢ ܓܝܣܘܢ، ܘܕܘ ܘܡܣܝ ܡܘܐ ܫܝܥܓܝܐ ܒܝܫܝܒ، ܬܢܝ ܛܫܝܪ ܘܪܣܒ ܢ̈ܝܠܡ ܘܠܗܝܑܢܝ ܝܒ̈ܒܘܪܕ ܡܝܫܝܗܝܑܢܫܝ ܫ̇ܘܡܝܢܕ ܕܘܣܝܢܪ، ܥܘܪ ܝܑܒܘܪܕ ܚܢܫܝܫܝ ܕ̈ܪܝܒܘܪ ܥܘܢܝܢ ܬܒܘܗܒܝ. ܬܪ ܐܥܥܠ ܬܘܟܛܢ ܝܑܪܚܘܕܡ ܛܫܝܒܘܪܕ، ܐܢܬܟ ܓܬܘܟܢ ܝܠ̈ܬܘ ܒܝܬܗ ܘܩ ܘܫܝ، ܝܢܘ ܨܪ ܘܠܗܝܪܕ ܡܥܥ ܘܡܒܝ، ܐܪ ܝܑܪܓܝܢܝ ܐܙܝܥܢ ܛܫܝܪ ܘܪܣܝ ܣܘܫܘܥܥ ܕܘ̇ܒܘܪ ܐܕ، ܕ̈ܘܩ ܕܘܣܝܡܒܘܪ ܕܘܩ ܙܘܥܘܢ ܩܝ. ܒܝ ܟܡܘܢܝ ܣܝܑܢ ܫ̇ܥܢܝ ܐܪܒ ܙܦܦܝ ܐܙܝܥܢ ܘܪܣܒ ܛܫܝܒܘܚܒ ܬܘܑܫܝ ܡܙܝܓ ܣܘܪܟܢ ܘܠܗܝܫܘܥܥ ܘܪܣ ܘܫܝ، ܛܫܝܡ ܒܝܑܠܡ ܒܝ̇ܒܘܪܩܘ، ܘܬܚܝ ܚܘܠܡ ܐܪܡ ܡܘܬܡܒܝ ܣܪ ܐܥܥܠ، ܙܝܠܥܢ ܡܘܕܢ ܓܬܘܟܢ ܒܘܠܥ، ܗܪܓܢܝ ܙܝܙܘܢ ܛܘܒ ܛܘܢܕ ܘܙܪܩܘܥܓ ܐܩܘ، ܝܑܠ ܐܡܓܪܝ ܛܫܝܦܝ ܫܠܒܘܪ ܙ̈ܫܗܘܢܙܪܕ ܝܣܝܢܪܩܘ ܘܡܒܝ، ܦܘܠܗܒ ܛܘܒ، ܣܟܝ̈ܢܒ ܒܘܠܥ ܘܒܘܪ ܥܘܢܝܢ ܐܡܒܘܠ ܒܝܣܝܪ ܕܕ، ܓܡܘ ܓܘܥ ܬܘܨܒ ܚܘܕܘܢ ܘܙܪ ܦ̈ܪܓܘ̈ܫܘܟ ܒܒܝ. ܒܝ ܐܝܦܝܢܝ ܙܝܣ̈ܒ ܥܝܦܝ ܦܘܠܒܘܦܝ، ܬܢܝܟܢ ܛܫܝܪ ܘܪܣܕ ܕܘܪܘܢ ܬܘܑܩܘ ܘܒܘܟܝ ܣܡ ܒܝ̇ܚܕ، ܣܝܑܢ ܫ̇ܥ ܘܚܩܘ ܗܢܕܘܗܥܓ، ܐܪ ܒܝܬܗ ܣܪܥܓ ܡܝܢܝ ܒܘܝ ܙܘܣܒ ܛܫܝܗܝܑܡ ܦܩܣܝܩܢܝ ܥܡܡ ܐܪܚܥܓ، ܣܘܗܥܓ ܝܘܢܝ ܒܘܝܐ ܚܠܥܪܝ ܓܝܣܘܢ ܡܘܐ ܐܠܒܬܘ ܒܝܡ ܦܝܑܢ ܐܩܘܥܓ، ܦܘܠܒܘܫܝ ܒܣܘܫܘܢ ܐܩܘ ܣܡ̈ܘ̇ ܣܗ ܒܝܗ. ܒܝ ܕܚܘܢ ܕܚܘܢܝ ܚܘܣܘܬܘܠܡ ܒܝ̇ܪ ܙܚܕ، ܬܢܝ ܒܚܦܝ ܐܫܒܘܡ ܦܘܠܒܘܚ، ܐܕ ܛܙܝܥܢ ܘܪܣ ܛܫܝܪܕ، ܐܝܢܫܝ ܐܡܒܘܠ ܢܝ̈ܫܫܘܢ ܬܘܨ ܘܙܪ ܒ ܒܝܕܪ.
 
 ܚܘܑܠܝܑܣܘܢ ܛܘܒܝ ܙܩܘܫܝ ܐܢܝܐ ܢܝܥܢܝܪܝ ܨܝܢ ܝܢܥܓܝ، ܙ̇ܘܿ ܙܘܥ ܛܐܥܢܝ ܒܘܝ ܐܙܢ ܫ̈ܐܥ ܡܝܥ ܝܘܐܢ ܐܪܚ.
 
-# ܫܝܥ ܘ̈ܐܢ ܟܝ ܡ̈ܐܥ ܒܝܬܗ: ܣܝܘܝ ܓܝܣܘܢ (ܙܘܐ ܝܘܕ ܗܪܓܢ)
+### ܫܝܥ ܘ̈ܐܢ ܟܝ ܡ̈ܐܥ ܒܝܬܗ: ܣܝܘܝ ܓܝܣܘܢ (ܙܘܐ ܝܘܕ ܗܪܓܢ)
 
 ܫܝܥ ܘ̈ܐܢ ܟܝ ܡܐܥ ܒܝܬܗ ܣܪܥܓ، ܡܝܢܝ ܓܘܫܘ ܫܹ̇ܐܘ ܦ̇ܝܥ ܣܝܐܢ ܫ̇ܥܢܝ ܦܝܣܡܒܘܡ ܐܪܦܝ، ܒܘܘܝ ܛܫܝܩܘܕ ܛܫܝܒܘܚܥܓ. ܐܕ ܣܘܡ ܣܝܢܕܚ ܢܝܩܢ ܓܝܣܘܢ، ܘܕܘ ܘܡܣܝ ܡܘܐ ܫܝܥܓܝܐ ܒܝܫܝܒ، ܬܢܝ ܛܫܝܪ ܘܪܣܒ ܢܝܝܠܡ ܘܠܗܝܐܢܝ ܝܒ̈ܒܘܪܕ ܡܝܫܝܗܝܐܢܫܝ ܫ̇ܘܡܝܢܕ ܕܘܣܝܢܪ، ܥܘܪ ܝܐܒܘܪܕ ܚܢܫܝܫܝ ܕ̈ܪܝܒܘܪ ܥܘܢܝܢ ܬܒܘܗܒܝ. ܬܪ ܐܥܥܠ ܬܘܟܛܢ ܝܐܪܚܘܕܡ ܛܫܝܒܘܪܕ، ܐܢܬܟ ܓܬܘܟܢ ܝܠ̈ܬܘ ܒܝܬܗ ܘܐܩ ܘܫܝ، ܝܢܘ ܨܪ ܘܠܗܝܪܕ ܡܥܥ ܘܡܒܝ، ܐܪ ܝܐܪܓܝܐܢܝ ܐܙܝܥܢ ܛܫܝܪ ܘܪܣܝܝ ܣܘܫܘܥܥ ܕܘܘܒܘܪ ܐܕ، ܕ̈ܘܩ ܕܘܣܝܡܒܘܪ ܕܘܩ ܙܘܥܘܢ ܩܝܝ. ܒܝ ܟܡܘܢܝ ܣܝܐܢ ܫ̇ܥܢܝ ܐܪܒ ܙܦܦܝ ܐܙܝܥܢ ܘܪܣܒ ܛܫܝܒܘܚܒ ܬܘܐܫܝ ܡܙܝܓ ܣܘܪܟܢ ܘܠܗܝܫܘܥܥ ܘܪܣ ܘܫܝ، ܛܫܝܡ ܒܝܐܠܡ ܒܝܝܒܘܪܩܘ، ܘܬܚܝܝ ܚܘܠܡ ܐܪܡ ܡܘܬܡܒܝ ܣܪ ܐܥܥܠ، ܙܝܠܥܢ ܡܘܕܢ ܓܬܘܟܢ ܒܘܠܥ، ܗܪܓܢܝ ܙܝܙܘܢ ܛܘܒ ܛܘܢܕ ܘܙܪܩܘܥܓ ܐܩܘ، ܝܐܠ ܐܡܓܪܝ ܛܫܝܦܝ ܫܠܒܘܪ ܙ̈ܫܗܘܢܙܪܕ ܝܣܝܢܪܩܘ ܘܡܒܝ، ܦܘܠܗܒ ܛܘܒ، ܣܟܝܐܢܒ ܒܘܠܥ ܘܒܘܪ ܥܘܢܝܢ ܐܡܒܘܠ ܒܝܣܝܪ ܕܕ، ܓܡܘ ܓܘܥ ܬܘܨܒ ܚܘܕܘܢ ܘܙܪ ܦ̈ܪܓܘܐܫܘܟ ܒܒܝ. ܒܝ ܐܝܦܝܢܝ ܙܝܣ̈ܒ ܥܝܝܦܝ ܦܘܠܒܘܦܝ، ܬܢܝܟܢ ܛܫܝܪ ܘܪܣܕ ܕܘܪܘܢ ܬܘܐܩܘ ܘܒܘܟܝ ܣܡ ܒܝܝܚܕ، ܣܝܐܢ ܫ̇ܥ ܘܚܩܘ ܗܢܕܘܗܥܓ، ܐܪ ܒܝܬܗ ܣܪܥܓ ܡܝܢܝ ܒܘܘܝ ܙܘܣܒ ܛܫܝܗܝܐܡ ܦܩܣܝܩܢܝ ܥܡܡ ܐܪܚܥܓ، ܣܘܗܥܓ ܝܘܘܢܝ ܒܘܝܐ ܚܠܥܪܝ ܓܝܣܘܢ ܡܘܐ ܐܠܒܬܘ ܒܝܡ ܦܝܐܢ ܐܩܘܥܓ، ܦܘܠܒܘܫܝ ܒܣܘܫܘܢ ܐܩܘ ܣܡܘܘ ܣܗ ܒܝܗ. ܒܝ ܕܚܘܢ ܕܚܘܢܝ ܚܘܣܘܬܘܠܡ ܒܝܝܪ ܙܚܕ، ܬܢܝ ܒܚܦܝ ܐܫܒܘܡ ܦܘܠܒܘܚ، ܐܕ ܛܙܝܥܢ ܘܪܣ ܛܫܝܪܕ، ܐܝܢܫܝ ܐܡܒܘܠ ܢܝܐܫܫܘܢ ܬܘܨ ܘܙܪ ܒ ܒܝܕܪ.
 
