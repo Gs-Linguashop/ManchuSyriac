@@ -210,12 +210,13 @@
 | ܓ݁ | nikan gimal | g' | k | g |
 | ܕ݂ | nikan dzalat | dz | ts | z |
 | ܗ݁ | nikan hei | h' | x | h |
-| ܫ݂ | nikan ži | ž | ʐ | r |
+| ܙ݂ | nikan ži | ž | ʐ | r |
 | ܟ݁ | nikan kif | k' | kʰ | k |
 | ܬ݂ | nikan tseo | ts | tsʰ | c |
 
 * 上列中的元音符号在正文中一般不标出，元音u/o/i的上标点和下标点则需要在正文中拼出
 * 汉语音节zhi/chi/shi/ri/zi/ci/si/的元音标记为ܐ̤；汉语元音ü标记为ܐ̈
+* 辅音上下标可用ܐ݁和ܐ݂，也可用ܐ̃和ܐ̰；如果因为字体原因，元音u/o/i和ü标记与辅音上下标冲突，那么辅音上下标可以书写在辅音另一侧避让
 
 ## 样例文本
 
